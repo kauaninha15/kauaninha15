@@ -2,8 +2,8 @@
 
 ## Sobre Mim
 - **Nome:** Kauana Ribas Silva
-- **Idade:** 16 anos
-- **Ocupação:** Estudante no SESI/SENAI 📚
+- **Idade:** 18 anos
+- **Ocupação:** Estudante da universidade Unoeste 📚
 - **Nível de Inglês:** Intermediário 🇬🇧
 
 ## Hobbies e Interesses 🎨🎥🍳💃
